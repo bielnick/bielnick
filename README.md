@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @bielnick
+- 👀 I’m interested in ... Whatever I can Hack or model
+- 🌱 I’m currently learning ... Go, Rust, Concept FullCycle
+- 💞️ I’m looking to collaborate on ... Whatever have a challenge
+- 📫 How to reach me ... "I wont find me, I'll find you", Joke... I can find me in: gabriel_alvesdelima@yahoo.com.br
